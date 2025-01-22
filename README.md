@@ -16,3 +16,12 @@
 
 ![facade](https://github.com/user-attachments/assets/4f8a70e0-5518-47eb-b3d9-7f7b460593e7)
 
+stills: 
+High Point Hike Summer 2024
+
+<img width="1501" alt="1" src="https://github.com/user-attachments/assets/5babe39e-4ff7-4d8e-8945-357919afd422" />
+
+
+Breakneck ridge;
+![DSC03987](https://github.com/user-attachments/assets/afecc27d-dfe5-4662-9066-190c67a940c6)
+
