@@ -25,3 +25,4 @@ High Point Hike Summer 2024
 Breakneck ridge;
 ![DSC03987](https://github.com/user-attachments/assets/afecc27d-dfe5-4662-9066-190c67a940c6)
 
+![areyouscrewed](https://github.com/user-attachments/assets/2436d5d1-60cb-4fd2-b7f2-f959e382b556)
