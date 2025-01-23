@@ -31,3 +31,22 @@ High Point Hike Summer 2024
 
 Breakneck ridge;
 ![DSC03987](https://github.com/user-attachments/assets/afecc27d-dfe5-4662-9066-190c67a940c6)
+<img width="1470" alt="4001" src="https://github.com/user-attachments/assets/33ed1645-4d77-45d9-adb7-4682264486c5" />
+
+<img width="1461" alt="4020" src="https://github.com/user-attachments/assets/b61da597-23d4-442e-b0cb-e060139c4b92" />
+
+<img width="1114" alt="4005a" src="https://github.com/user-attachments/assets/813195cc-3c6f-4717-ba53-fbd6f697d3a9" />
+
+
+<img width="1464" alt="3983" src="https://github.com/user-attachments/assets/481d0d68-41f0-4839-b57e-348124056495" />
+<img width="1158" alt="3985a" src="https://github.com/user-attachments/assets/837d61e3-931e-4658-b966-a37fe34b8bc4" />
+
+<img width="1460" alt="3981" src="https://github.com/user-attachments/assets/6447023e-7bed-4c63-93e3-4b5b867f63db" />
+
+<img width="1459" alt="3991" src="https://github.com/user-attachments/assets/c214d485-6606-4695-84eb-d24f907427cc" />
+
+
+
+
+
+
