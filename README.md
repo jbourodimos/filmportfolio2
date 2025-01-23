@@ -16,6 +16,13 @@
 
 ![facade](https://github.com/user-attachments/assets/4f8a70e0-5518-47eb-b3d9-7f7b460593e7)
 
+
+![areyouscrewed](https://github.com/user-atta
+
+<img width="745" alt="aboutmee" src="https://github.com/user-attachments/assets/f3d6ff9d-ea55-4cc2-b98e-1dbfa99da912" />
+chments/assets/2436d5d1-60cb-4fd2-b7f2-f959e382b556)
+
+
 stills: 
 High Point Hike Summer 2024
 
@@ -24,5 +31,3 @@ High Point Hike Summer 2024
 
 Breakneck ridge;
 ![DSC03987](https://github.com/user-attachments/assets/afecc27d-dfe5-4662-9066-190c67a940c6)
-
-![areyouscrewed](https://github.com/user-attachments/assets/2436d5d1-60cb-4fd2-b7f2-f959e382b556)
